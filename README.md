@@ -1,4 +1,4 @@
-🙋                                          Hi there 👋. I'm Alphonce Jackson a student currently excavating the deepest        mines of computer software in programming. Coding is what I am interested in.
+🙋     Hi there 👋. I'm Alphonce Jackson a student currently excavating the deepest        mines of computer software in programming. Coding is what I am interested in.
 
 
 🤔    I think of becoming one of the best 👌 software engineers by profession in          programming world.
